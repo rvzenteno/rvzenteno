@@ -1,5 +1,5 @@
 ### Hi there 👋, my name is Roberto
-#### Mechanical Design, Coordinator, VDC, BIM
+#### Mechanical Designer, Coordinator, VDC, BIM
 I am a self starter, tech savvy, guitar loving, gadget enthusiast, jack of all trades. Actively looking for a new challenge. But never forgetting my priorities as a husband and father.
 
 Skills: Autodesk / REVIT / AUTOCAD / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKEY
