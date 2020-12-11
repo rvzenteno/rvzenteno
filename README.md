@@ -2,7 +2,7 @@
 #### Plumbing/Mechanical Designer, Coordinator, VDC, BIM
 I am a self starter, tech savvy, guitar loving, gadget enthusiast, jack of all trades. Actively looking for a new challenge. But never forgetting my priorities as a husband and father.
 
-Skills: Autodesk / REVIT / AUTOCAD / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKEY
+Skills: Autodesk / REVIT / AUTOCAD / Fabrication MEP / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKEY
 
 - 💬 Ask me about AutoCAD, Revit, Navisworks, Bluebeam 
 - 📫 How to reach me: rvzenteno@gmail.com 
@@ -11,7 +11,7 @@ Skills: Autodesk / REVIT / AUTOCAD / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKE
 #### Diseñador Mechanico Industrial, Coordinador, VDC, BIM
 Soy un emprendedor, conocedor de tecnología, amante de la guitarra, entusiasta de los gadgets. Simpre buscando activamente un nuevo desafío. Pero nunca olvidar mis prioridades como esposo y padre.
 
-Habilidades: Autodesk / REVIT / AUTOCAD / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKEY
+Habilidades: Autodesk / REVIT / AUTOCAD / Fabrication MEP / NAVISWORKS / BLUEBEAM / AUTOLISP /AUTOHOTKEY
 
 - 💬 Pregúntame acerca de AutoCAD, Revit, Navisworks, Bluebeam 
 - 📫 Cómo contactarme: rvzenteno@gmail.com 
